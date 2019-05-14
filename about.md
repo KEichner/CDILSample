@@ -4,7 +4,7 @@
 
 ### Incredibly fancy...
 
-These a words. All the words. Wordy word words.
+These are words. All the words. Wordy word words.
 Words are wordy and full of wordness.
 Hazzah! The words are wording all over this word page.
 
